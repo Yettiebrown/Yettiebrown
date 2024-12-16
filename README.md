@@ -1,8 +1,8 @@
-Hi, IYetunde Abegunde is an accomplished accountant with over five years of experience in financial management and accounts payable/receivable. She specializes in streamlining processes such as invoice management, payment runs, and reconciliations to improve efficiency and accuracy. Proficient in QuickBooks, Sage, Zoho Books, Xero, Power BI, and SQL, she brings expertise in financial reporting, payroll, tax remittance, and fixed asset management.
+Hi, I’m Yetunde Abegunde, an accomplished accountant with over five years of experience in financial management, accounts payable/receivable, and financial modeling. I specialize in streamlining key processes such as invoice management, payment runs, and reconciliations to drive efficiency and ensure accuracy. Proficient in tools like QuickBooks, Sage, Zoho Books, Xero, Power BI, and SQL, I excel in financial reporting, payroll, tax remittance, and fixed asset management.
 
-Key achievements include tracking receivables to ensure timely customer payments, managing fund allocations for over 4,000 field agents, and contributing to successful audits through meticulous record-keeping. Yetunde holds certifications in ACCA (Applied Skills Stage) and Financial Modeling and Valuation Analysis. Her strengths include attention to detail, problem-solving, and effective collaboration.
+Notable achievements include improving cash flow by efficiently tracking receivables to ensure timely customer payments, managing precise fund allocations for over 4,000 field agents, and contributing to seamless audits through meticulous financial record-keeping. I hold certifications in ACCA (Applied Skills Stage) and Financial Modeling and Valuation Analysis, backed by strong skills in attention to detail, problem-solving, and collaboration.
 
-Feel free to reach out to me at 08025333260 or abegunde_yahoo.com.
+Feel free to connect with me at 08025333260 or abegunde_yahoo.com.
 
 
 
