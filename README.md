@@ -1,5 +1,4 @@
 Hi, I’m Yetunde Abegunde, a dynamic accountant with over five years of experience in financial management, accounts payable/receivable, and financial analysis. I specialize in streamlining accounting processes, including invoice management, payment runs, and reconciliations, to enhance operational efficiency and ensure financial accuracy.
-
 Core Expertise:
 Financial Reporting & Analysis: Preparation of management accounts, journal entries, and reconciliations while ensuring compliance with GAAP standards.
 Accounts Payable/Receivable Management: Skilled in tracking receivables, resolving payment inquiries, and overseeing aging analysis to improve collections and reduce overdue balances.
